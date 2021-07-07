@@ -1,3 +1,3 @@
- → tuqky#9999
+discord : tuqky#9999
 
 
