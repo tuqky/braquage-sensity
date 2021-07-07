@@ -1,4 +1,4 @@
 discord : tuqky#9999
 
 
-https://discord.gg/vanitylife
+mon serveur : https://discord.gg/vanitylife
