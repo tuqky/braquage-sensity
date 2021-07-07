@@ -1,4 +1,11 @@
-discord : tuqky#9999
-
-
-mon serveur : https://discord.gg/vanitylife
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
+tuqky#9999
